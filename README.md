@@ -10,9 +10,8 @@ If you need help bc ur a big paster join here
 
 **CREDITS:**
 _@cOrby#6969_
-_@ItzDevx#0388_
 
 # Also UPDATED FULLY
 
-So you don't have to :))))))
-Thanks _@ItzDevx#0388_
+So you don't have to :)
+
