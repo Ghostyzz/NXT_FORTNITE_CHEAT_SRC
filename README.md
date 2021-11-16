@@ -6,7 +6,7 @@
 
 If you need help bc ur a big paster join here 
 
-**SUPPORT SERVER:** https://mega.nz/file/U1kHxSLR#ZWPwZZYw6QaLv5Q2SsDHhjwxpL6tHaKeTmE0oMdtA6Q 
+**SUPPORT SERVER:** https://discord.gg/4uAxq7V8YH
 
 **CREDITS:**
 _@cOrby#6969_
