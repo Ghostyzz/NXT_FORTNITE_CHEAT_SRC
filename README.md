@@ -11,3 +11,6 @@ If you need help bc ur a big paster join here
 **CREDITS:**
 _@cOrby#6969_
 _@ItzDevx#0388_
+
+# Also UPDATED FULLY
+
